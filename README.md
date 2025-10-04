@@ -1,1 +1,2 @@
-# the-knight-king-who-returned-with-a-god
+# The Knight King Who Returned With a God
+Je suis revenu sur Terre après avoir chassé des démons dans l'autre monde pendant trois cents ans. Mais je ne suis pas revenu seul...
